@@ -1,2 +1,1 @@
--My name is WizzardCode
--I like PCs I guess 👷‍♂
+My name is Wizzard-Code virtually and I like science ig
