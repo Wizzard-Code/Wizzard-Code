@@ -1,1 +1,1 @@
-My name is Wizzard-Code virtually and I like science ig
+I lost my old account
